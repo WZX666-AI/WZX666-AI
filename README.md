@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on crush
 - 📫 How to reach me V我50
 - 😄 Pronouns: happy
-- ⚡ Fun fact: 
+- ⚡ Fun fact: HTH is a SillyB
 
 <!---
 WZX666-AI/WZX666-AI is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
