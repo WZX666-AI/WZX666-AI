@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @WZX666-AI
-- 👀 I’m interested in large language model
-- 🌱 I’m currently learning HTML
+- 👀 I’m interested in database
+- 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on crush
 - 📫 How to reach me V我50
 - 😄 Pronouns: happy
